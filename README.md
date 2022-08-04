@@ -1,4 +1,3 @@
-<img width="406" alt="Screen Shot 2022-08-03 at 11 10 46 PM" src="https://user-images.githubusercontent.com/55885627/182776036-83b29e2d-b907-4e99-868d-e85c9ffbcd3e.png">
 # 08-03-2022
 
 Previous [Diary](https://aryanmangla23.github.io/08-02-2022/)
