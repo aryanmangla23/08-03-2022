@@ -1,3 +1,4 @@
+<img width="573" alt="Screen Shot 2022-08-03 at 11 10 09 PM" src="https://user-images.githubusercontent.com/55885627/182775696-c8ada0d1-72e2-4080-93b4-0917f948277c.png">
 # 08-03-2022
 
 Previous [Diary](https://aryanmangla23.github.io/08-02-2022/)
@@ -9,3 +10,5 @@ Finished 25-21. Cried more times b/c of this show than from life. Learned a lot 
 Last thing, **Learn to be able to let go.**
 
 [Playlist](https://open.spotify.com/playlist/7ma2dpb8u9YbRJwA21F4R3?si=06e1161aa7af4686)
+
+Interesting<img width="573" alt="Screen Shot 2022-08-03 at 11 10 09 PM" src="https://user-images.githubusercontent.com/55885627/182775770-7588a9bd-4d3f-4cd3-a166-05015c9c6988.png">
